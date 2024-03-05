@@ -40,5 +40,3 @@ You can ask for info for each and every one edition
 # Contact
 Contact https://t.me/bttcNasc
 
-CONTACT
-Contact https://t.me/btc44x 🔗
