@@ -38,5 +38,5 @@ Demo - $60 - You can flash only bitcoin
 You can ask for info for each and every one edition
 
 # Contact
-Contact https://t.me/bttcNasc
+Contact https://t.me/bttcNasc or Group Info https://t.me/+8d8J7MGZ9dUwOGU0
 
